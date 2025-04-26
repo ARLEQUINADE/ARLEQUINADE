@@ -1,5 +1,8 @@
-  <p align="center"> <img src="https://i.postimg.cc/RZ1hXDV6/4435524fd769de4b7e00d9eb06b639ccf4fd4989.jpg"> </p>
+  <p align="center"> <img src="https://i.postimg.cc/667dYBs8/1be214b07ea825783f5a9929a83dc8412bdf6f06.webp"> </p>
   
-<p align="center"> <b>WHEN</b> the <a href="https://open.spotify.com/album/3o5EnVZNJXtfPV8tCoagjI?si=HLtwt4mJRO2Oi9EdNZfITQ">Pawn</a> hits the Conflicts he thinks like a King (...) </p>
-wip
+<p align="center"> Read my <a href="https://rentry.org/exentaser">RENTRY</a> boy. </p>
+<p align="">     Sign my <a href="https://atabook.](https://aoiveae.atabook.org">ATABOOK</a> boy. </p>
+
+  <p align="center"> <img src="https://i.postimg.cc/667dYBs8/1be214b07ea825783f5a9929a83dc8412bdf6f06.webp"> </p>
+
 <p align="center"> <img src="https://i.postimg.cc/WbZZgxSL/wlc.png">   </p>
