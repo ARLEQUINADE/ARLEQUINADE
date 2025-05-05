@@ -19,7 +19,7 @@
   <img src="https://i.postimg.cc/yNYR9HXY/green_chain.gif" height="15"> </p> 
 
   <p align="center">
-  <img src="https://i.postimg.cc/WbZZgxSL/wlc.png" height="200"><img src="https://file.garden/aBlIXZdbGjS8LyPq/sad-ball.gif" height="200">
+  <img src="https://i.postimg.cc/WbZZgxSL/wlc.png" height="200">
   </p>
 
 
