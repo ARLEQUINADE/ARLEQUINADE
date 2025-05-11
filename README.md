@@ -18,6 +18,10 @@
   <p align="center">
   <img src="https://i.postimg.cc/yNYR9HXY/green_chain.gif" height="15"> </p> 
 
+  <p align="center"> 
+<a href="https://tamanotchi.world/9158c"><img src="https://tamanotchi.world/i/9158" alt="It's tamaNOTchi! Click to feed!"></a> <a href="https://tamanotchi.world/9231c"><img src="https://tamanotchi.world/i/9231" alt="It's tamaNOTchi! Click to feed!"></a> <a href="https://tamanotchi.world/9285c"><img src="https://tamanotchi.world/i/9285" alt="It's tamaNOTchi! Click to feed!"></a> <a href="https://tamanotchi.world/9363c"><img src="https://tamanotchi.world/i/9363" alt="It's tamaNOTchi! Click to feed!"></a> <a href="https://tamanotchi.world/9553c"><img src="https://tamanotchi.world/i/9553" alt="It's tamaNOTchi! Click to feed!"></a> <a href="https://tamanotchi.world/22909c"><img src="https://tamanotchi.world/i/22909" alt="It's tamaNOTchi! Click to feed!"></a> <a href="https://tamanotchi.world/22931c"><img src="https://tamanotchi.world/i/22931" alt="It's tamaNOTchi! Click to feed!"></a> <a href="https://tamanotchi.world/22936c"><img src="https://tamanotchi.world/i/22936" alt="It's tamaNOTchi! Click to feed!"></a>
+  </p> 
+
   <p align="center">
   <img src="https://i.postimg.cc/WbZZgxSL/wlc.png" height="200">
   </p>
