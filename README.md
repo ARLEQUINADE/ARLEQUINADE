@@ -2,7 +2,7 @@
 
 
 
-<img src="https://i.postimg.cc/zG86kBTw/ezgif-49c8593c3d17fc.gif"> <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=t347n58tjvzwmecnsr68wrdy9&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile" height="75"> <img src="https://i.postimg.cc/02pPPL0Z/Untitled121-20251031235642.png">
+<img src="https://i.postimg.cc/zG86kBTw/ezgif-49c8593c3d17fc.gif"> <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=t347n58tjvzwmecnsr68wrdy9&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile" height="75"> <img src="https://i.postimg.cc/Gtx7SJvL/Untitled121-20251101000009.png">
 
 <details>
     <summary> </summary>
