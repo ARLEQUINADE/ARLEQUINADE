@@ -1,4 +1,4 @@
-⠀⠀⠀ <a href="https://rentry.org/exentaser">.O1</a>⠀<a href="https://aoiveae.atabook.org">.O2</a>⠀ <img src="https://i.postimg.cc/yYqTFb00/ezgif-41e8c915f4d702.gif"> Check out my <a href="https://tamanotchi.world/u/7524">children</a>...⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=ARLEQUINADE&style=for-the-badge&color=969696&label=%20%E8%9B%87%20%20&abbreviated=true)
+⠀⠀⠀ <a href="https://rentry.org/exentaser">RENTRY</a>&⠀<a href="https://aoiveae.atabook.org">ATABOOK</a>⠀ <img src="https://i.postimg.cc/yYqTFb00/ezgif-41e8c915f4d702.gif"> Check out my <a href="https://tamanotchi.world/u/7524">children</a>...⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=ARLEQUINADE&style=for-the-badge&color=969696&label=%20%E8%9B%87%20%20&abbreviated=true)
 
 
 
