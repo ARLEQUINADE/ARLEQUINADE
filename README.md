@@ -4,6 +4,7 @@
 
 <img src="https://i.postimg.cc/zG86kBTw/ezgif-49c8593c3d17fc.gif"> <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=t347n58tjvzwmecnsr68wrdy9&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile" height="75"> <img src="https://file.garden/aRtkRxnkRhEaeTgR/Untitled147_20251230231730.png" alt="by millionfish" width="350px">
 </br>
+<img src="https://file.garden/aRtkRxnkRhEaeTgR/Untitled156_20260117201530.png">
   <p align="center"><img src="https://file.garden/aRtkRxnkRhEaeTgR/KILL%20ALL%20TRISTAMP%20FANS.png" height="150px"></p>
 
   <p align="center">
