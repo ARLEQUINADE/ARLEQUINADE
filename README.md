@@ -15,5 +15,5 @@
   </p>
 </br>
 
-<img src="https://file.garden/aRtkRxnkRhEaeTgR/Untitled156_20260117201530.png">
+<img src="https://file.garden/aRtkRxnkRhEaeTgR/Untitled156_20260117201530.png" height="25px">
   <p align="center"><img src="https://file.garden/aRtkRxnkRhEaeTgR/KILL%20ALL%20TRISTAMP%20FANS.png" height="100px"></p>
