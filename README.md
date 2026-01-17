@@ -5,6 +5,7 @@
 <img src="https://i.postimg.cc/zG86kBTw/ezgif-49c8593c3d17fc.gif"> <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=t347n58tjvzwmecnsr68wrdy9&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile" height="75"> <img src="https://file.garden/aRtkRxnkRhEaeTgR/Untitled147_20251230231730.png" alt="by millionfish" width="350px">
 </br>
 
+<img src="https://file.garden/aRtkRxnkRhEaeTgR/Untitled156_20260117201530.png" height="25px">
 
   <p align="center">
   <img src="https://file.garden/aRtkRxnkRhEaeTgR/7d86274fc539bcb4ab88b986274165dccf777254.pnj"/> <img src="https://i.postimg.cc/LhF4fxrk/tumblr_8db257366fc8585c17164cf803edc194_f6b6de09_100.jpg"/> <img src="https://64.media.tumblr.com/cd0b1c61e445ef1769ec10ea44d4a5b9/5dae19f76b7ce58c-0e/s100x200/804a79d22144b7c6bd13a46edf4b837377b3b66d.pnj"/> <img src="https://i.postimg.cc/MZ4DKqTh/c4cf9a49.png"/> <img src="https://i.postimg.cc/W42cHwtj/thebread-5.gif"/> 
