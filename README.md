@@ -4,8 +4,7 @@
 
 <img src="https://i.postimg.cc/zG86kBTw/ezgif-49c8593c3d17fc.gif"> <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=t347n58tjvzwmecnsr68wrdy9&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile" height="75"> <img src="https://file.garden/aRtkRxnkRhEaeTgR/Untitled147_20251230231730.png" alt="by millionfish" width="350px">
 </br>
-<img src="https://file.garden/aRtkRxnkRhEaeTgR/Untitled156_20260117201530.png">
-  <p align="center"><img src="https://file.garden/aRtkRxnkRhEaeTgR/KILL%20ALL%20TRISTAMP%20FANS.png" height="150px"></p>
+
 
   <p align="center">
   <img src="https://file.garden/aRtkRxnkRhEaeTgR/7d86274fc539bcb4ab88b986274165dccf777254.pnj"/> <img src="https://i.postimg.cc/LhF4fxrk/tumblr_8db257366fc8585c17164cf803edc194_f6b6de09_100.jpg"/> <img src="https://64.media.tumblr.com/cd0b1c61e445ef1769ec10ea44d4a5b9/5dae19f76b7ce58c-0e/s100x200/804a79d22144b7c6bd13a46edf4b837377b3b66d.pnj"/> <img src="https://i.postimg.cc/MZ4DKqTh/c4cf9a49.png"/> <img src="https://i.postimg.cc/W42cHwtj/thebread-5.gif"/> 
@@ -13,4 +12,7 @@
       <br>
    <img src="https://file.garden/aRtkRxnkRhEaeTgR/nin%20blinkie.gif"> <img src="https://file.garden/aRtkRxnkRhEaeTgR/a7f539d2694a3a1fac42de151bc3b7cb8e5ec58a.gifv"> <img src="https://file.garden/aRtkRxnkRhEaeTgR/ezgif-58d92a7211bc9df1.webp"> <img src="https://file.garden/aRtkRxnkRhEaeTgR/5db35fe9f72113cce1d9727afe85953ab451aaf8.gifv"> <img src="https://file.garden/aRtkRxnkRhEaeTgR/ef19ef681c5b333fb8332ba17e34662d72767172.gifv"> <img src="https://file.garden/aRtkRxnkRhEaeTgR/ezgif-539d394a66a92bd7.webp"> <img src="https://file.garden/aRtkRxnkRhEaeTgR/92a51f9b689e0a5dbc4e3e107d835533f2454b7e.gifv"/> <img src="https://file.garden/aRtkRxnkRhEaeTgR/d23cd6a86c628a13f6f3853a79334e0ccf20afa0.gifv"/> <img src="https://file.garden/aRtkRxnkRhEaeTgR/3290a79b8376649a0978cbd1e45387d306096ec6.gifv"/> <img src="https://file.garden/aRtkRxnkRhEaeTgR/a85beb2a4a7fffe4eb1fe91c44e70f9c7705c67c.gifv"/> <img src="https://file.garden/aRtkRxnkRhEaeTgR/df98e5a6014bb4505ed8def0c17644f257fa5ccb.gifv"/> <img src="https://file.garden/aRtkRxnkRhEaeTgR/ecc2f6cfe85119b8dbf61f8af87aedfe8fffb393.gifv"/> <img src="https://file.garden/aRtkRxnkRhEaeTgR/35e2368473c1b1c377e77f7b0136925213867f28.gifv"/> <img src="https://file.garden/aRtkRxnkRhEaeTgR/78cb271e5ba6e9181444c3c3f21aa634e1cbfb63.webp"/> <img src="https://file.garden/aRtkRxnkRhEaeTgR/dfcd1b9a1bd689b252d54f5f28ad772b01c28dd3.gifv"/>
   </p>
+</br>
 
+<img src="https://file.garden/aRtkRxnkRhEaeTgR/Untitled156_20260117201530.png">
+  <p align="center"><img src="https://file.garden/aRtkRxnkRhEaeTgR/KILL%20ALL%20TRISTAMP%20FANS.png" height="150px"></p>
