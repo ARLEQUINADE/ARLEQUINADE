@@ -1,8 +1,8 @@
-⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ <a href="https://rentry.org/exentaser">RENTRY</a>&⠀<a href="https://aoiveae.atabook.org">ATABOOK</a>⠀ <img src="https://i.postimg.cc/yYqTFb00/ezgif-41e8c915f4d702.gif"> Check out my <a href="https://tamanotchi.world/u/7524">children</a>...⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=ARLEQUINADE&style=for-the-badge&color=969696&label=SEEN+BY&abbreviated=true)
+⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ <a href="https://rentry.org/exentaser">RENTRY</a>&⠀<a href="https://aoiveae.atabook.org">ATABOOK</a>⠀ <img src="https://i.postimg.cc/yYqTFb00/ezgif-41e8c915f4d702.gif"> Check out my <a href="https://tamanotchi.world/u/7524">children</a>...⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=ARLEQUINADE&style=for-the-badge&color=969696&label=SEEN+BY&abbreviated=true)
 
 
 
-⠀⠀⠀⠀ ⠀⠀ <img src="https://i.postimg.cc/zG86kBTw/ezgif-49c8593c3d17fc.gif"> <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=t347n58tjvzwmecnsr68wrdy9&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile" height="75"> <img src="https://file.garden/aRtkRxnkRhEaeTgR/Untitled147_20251230231730.png" alt="by millionfish" width="350px">
+⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀ <img src="https://i.postimg.cc/zG86kBTw/ezgif-49c8593c3d17fc.gif"> <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=t347n58tjvzwmecnsr68wrdy9&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile" height="75"> <img src="https://file.garden/aRtkRxnkRhEaeTgR/Untitled147_20251230231730.png" alt="by millionfish" width="350px">
 </br>
 
 ⠀⠀⠀⠀ ⠀⠀ <p align="center"><img src="https://file.garden/aRtkRxnkRhEaeTgR/div.pnj" height="125px"></p>
