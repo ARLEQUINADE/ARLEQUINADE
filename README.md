@@ -6,7 +6,8 @@
 </br>
 
 ⠀⠀⠀⠀ ⠀⠀ <p align="center"><img src="https://file.garden/aRtkRxnkRhEaeTgR/275ae2f2f63dbde7aac99be53458ce79a704071f.pnj"></p>
-
+  <p align="center"><img src="https://file.garden/aRtkRxnkRhEaeTgR/KILL%20ALL%20TRISTAMP%20FANS.png" height="100px"></p>
+<img src="https://file.garden/aRtkRxnkRhEaeTgR/Untitled156_20260117201530.png" height="25px">
 
   <p align="center">
        <img src="https://file.garden/aRtkRxnkRhEaeTgR/nin%20blinkie.gif"> <img src="https://file.garden/aRtkRxnkRhEaeTgR/a7f539d2694a3a1fac42de151bc3b7cb8e5ec58a.gifv"> <img src="https://file.garden/aRtkRxnkRhEaeTgR/ezgif-58d92a7211bc9df1.webp"> <br> <img src="https://file.garden/aRtkRxnkRhEaeTgR/5db35fe9f72113cce1d9727afe85953ab451aaf8.gifv"> <img src="https://file.garden/aRtkRxnkRhEaeTgR/ef19ef681c5b333fb8332ba17e34662d72767172.gifv"> <img src="https://file.garden/aRtkRxnkRhEaeTgR/ezgif-539d394a66a92bd7.webp"> <br> <img src="https://file.garden/aRtkRxnkRhEaeTgR/92a51f9b689e0a5dbc4e3e107d835533f2454b7e.gifv"/> <img src="https://file.garden/aRtkRxnkRhEaeTgR/d23cd6a86c628a13f6f3853a79334e0ccf20afa0.gifv"/> <img src="https://file.garden/aRtkRxnkRhEaeTgR/3290a79b8376649a0978cbd1e45387d306096ec6.gifv"/> <br> <img src="https://file.garden/aRtkRxnkRhEaeTgR/a85beb2a4a7fffe4eb1fe91c44e70f9c7705c67c.gifv"/> <img src="https://file.garden/aRtkRxnkRhEaeTgR/df98e5a6014bb4505ed8def0c17644f257fa5ccb.gifv"/> <img src="https://file.garden/aRtkRxnkRhEaeTgR/ecc2f6cfe85119b8dbf61f8af87aedfe8fffb393.gifv"/> <br> <img src="https://file.garden/aRtkRxnkRhEaeTgR/35e2368473c1b1c377e77f7b0136925213867f28.gifv"/> <img src="https://file.garden/aRtkRxnkRhEaeTgR/78cb271e5ba6e9181444c3c3f21aa634e1cbfb63.webp"/> <img src="https://file.garden/aRtkRxnkRhEaeTgR/dfcd1b9a1bd689b252d54f5f28ad772b01c28dd3.gifv"/>
@@ -16,5 +17,4 @@
   </p>
 </br>
 
-<img src="https://file.garden/aRtkRxnkRhEaeTgR/Untitled156_20260117201530.png" height="25px">
-  <p align="center"><img src="https://file.garden/aRtkRxnkRhEaeTgR/KILL%20ALL%20TRISTAMP%20FANS.png" height="100px"></p>
+
