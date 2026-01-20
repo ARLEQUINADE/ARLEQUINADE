@@ -1,4 +1,4 @@
-⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ <a href="https://fluffle.cc/godhead">INFO⠀ <img src="https://i.postimg.cc/yYqTFb00/ezgif-41e8c915f4d702.gif"> Check out my <a href="https://tamanotchi.world/u/7524">children</a>...⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=ARLEQUINADE&style=for-the-badge&color=969696&label=SEEN+BY&abbreviated=true)
+⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ <a href="https://fluffle.cc/godhead">INFO</a>⠀ <img src="https://i.postimg.cc/yYqTFb00/ezgif-41e8c915f4d702.gif"> Check out my <a href="https://tamanotchi.world/u/7524">children</a>...⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=ARLEQUINADE&style=for-the-badge&color=969696&label=SEEN+BY&abbreviated=true)
 
 
 
