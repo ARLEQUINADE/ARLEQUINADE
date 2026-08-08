@@ -2,7 +2,9 @@
 
 
 
-⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀ <img src="https://i.postimg.cc/zG86kBTw/ezgif-49c8593c3d17fc.gif"> <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=t347n58tjvzwmecnsr68wrdy9&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile" height="75"> <img src="https://file.garden/aRtkRxnkRhEaeTgR/Untitled147_20251230231730.png" alt="by millionfish" width="350px">
+⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀ <img src="https://i.postimg.cc/zG86kBTw/ezgif-49c8593c3d17fc.gif"> <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=t347n58tjvzwmecnsr68wrdy9&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true">
+  </a> <img src="https://file.garden/aRtkRxnkRhEaeTgR/Untitled147_20251230231730.png" alt="by millionfish" width="350px">
 </br>
 
 ⠀⠀⠀⠀ ⠀⠀ <p align="center"><img src="https://file.garden/aRtkRxnkRhEaeTgR/275ae2f2f63dbde7aac99be53458ce79a704071f.pnj"></p>
